@@ -1,2 +1,2 @@
-<div align="center"> <img width="534" height="467" <img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/0663a659-ac80-481e-9307-61ada37cfad5" />
+<div align="center"> <img width="500" height="279" alt="Image" src="https://github.com/user-attachments/assets/73fe1c8c-0dc0-4fa3-b2f6-9dc48132af75" />
 <div align="center"> me and wife
