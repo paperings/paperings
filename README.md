@@ -2,3 +2,5 @@
 <div align="center"> <img width="500" height="279" alt="Image" src="https://github.com/user-attachments/assets/73fe1c8c-0dc0-4fa3-b2f6-9dc48132af75" />
 <div align="center"> me and wife
 
+[guns](https://guns.lol/promethium) ⠀  ⠀[ata](https://paperings.atabook.org)
+
