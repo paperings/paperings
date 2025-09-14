@@ -2,7 +2,7 @@
   
   ⠀[rentry](https://rentry.co/avennsun)
   
-<div align="center"> <img width="500" height="304" alt="Image" src="https://github.com/user-attachments/assets/388ff562-f74f-4706-bbad-94d8d034ab2e" />
+<div align="center"> <img width="577" height="433" alt="Image" src="https://github.com/user-attachments/assets/4b2a0e8a-6a67-4ff0-9ab5-ea77f20174ad" />
 <div align="center"> i love my silly girlfriend 
 
 [link](https://guns.lol/promethium) 
