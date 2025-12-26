@@ -1,4 +1,4 @@
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=paperings&label=✶%20&color=ffb6c1&style=flat" alt="paperings" /> </p>
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=paperings&label=✶%20&color=71797E&style=flat" alt="paperings" /> </p>
   
   ⠀[**rentry**](https://rentry.co/avennsun)
   
