@@ -2,8 +2,7 @@
   
   ⠀[**rentry**](https://rentry.co/avennsun)
   
-<div align="center"> <img width="577" height="433" alt="Image" src="https://github.com/user-attachments/assets/4b2a0e8a-6a67-4ff0-9ab5-ea77f20174ad" />
-<div align="center"> vigi is a little stinky dont mind him
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ue3gey8p0x81o2u4bmql8yp8z&cover_image=true&theme=apple&show_offline=false&background_color=121212&interchange=true&profanity=false&mode=light)](https://github.com/kittinan/spotify-github-profile)
 
 [**link**](https://guns.lol/promethium) 
 ⠀⠀[**ata**](https://paperings.atabook.org) ⠀⠀[**old**](https://rentry.co/silkstitches)
