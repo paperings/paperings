@@ -1,4 +1,4 @@
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=paperings&label=✶%20&color=F8E288&style=flat" alt="paperings" /> </p>
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=paperings&label=✶%20&color=e77171&style=flat" alt="paperings" /> </p>
   
 <div align="center"><img width="89" height="1080" alt="Image" src="https://github.com/user-attachments/assets/25cefb8a-8748-442e-ba66-fffed1e416f9" />
 
