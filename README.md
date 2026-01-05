@@ -9,4 +9,4 @@
 art made by my lovely boyfriend
 
 semi active until march! preparing 
-for exams (= _ =)
+for exams T_T
