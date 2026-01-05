@@ -6,4 +6,6 @@
   
 ![Image](https://github.com/user-attachments/assets/d2a3a266-a78b-4227-bbba-b80b6e677151)
 
-locked in 
+art made by my lovely boyfriend
+
+semi active until march! preparing for exams (= _ =)
