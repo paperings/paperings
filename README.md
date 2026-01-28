@@ -6,9 +6,6 @@
 [<img width="89" height="63" alt="Image" src="https://github.com/user-attachments/assets/67a0dc88-3ebf-45ab-a796-76025169cff5" />](https://rentry.co/viaya)
 
 
-![Image](https://github.com/user-attachments/assets/ba61185e-d5d2-4b84-989a-e7c84e623d6b)
-
-
 
 **cuddcomf** (˵˃ ᗜ ˂˵)
 
