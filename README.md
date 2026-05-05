@@ -9,5 +9,3 @@
 **cuddcomf** (˵˃ ᗜ ˂˵)
 
 **usually at the hyv area with my bf and oomfs**
-
-semi-active until march, studying for finals
