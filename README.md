@@ -11,7 +11,9 @@
 **usually at the hyv area with my bf and oomfs**
 
 computer: whats your password?
+
 ayase: puts* "vigi's dih"
+
 computer: *incorrect * password too long
 
 vigi u a freak
